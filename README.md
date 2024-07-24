@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer science 
 - 🌱 I’m currently learning Artificial intelligence 
 - 💞️ I’m looking to collaborate on Artificial intelligence project,software design project
-- 📫 How to reach me WhatsApp no 0759964262
+- 📫 How to reach me WhatsApp no 0759964262 or 0620134262
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
